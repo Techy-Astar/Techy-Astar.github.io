@@ -1,1 +1,0 @@
-# Techy-Astar.github.io
